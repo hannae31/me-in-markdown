@@ -6,7 +6,8 @@ This summer I traveled with my parents. I love travelling. This summer I went to
 My main favorite thing to do is listen to music. I love music of all sorts. Right now, my main genre is rap but I'll listen to pretty much anything. I listen to music in Spanish, Swedish, Portuguese, Norweigan, Danish, Finnish, Arabic, Farsi, Hebrew, Greek, and so much more. Sometimes I listen to Eurovision winners playlists because that's fun to hear what won in whichever year. My favorite artists right now are Victor Leksell, Einar, Bolaget, and Morad. They're all Swedish artists except for Morad. For a while I listened to mainly Spanish and then after that mainly Portuguese. Now it's all different languages and genres. I love music, I listen to it so much. Every year my spotify minutes go up even more. 
 
 # Playlist
-
+https://open.spotify.com/playlist/2XZMCI66qCLX6Sy2rfGMnd?si=Pt3co-yKR4-e3dV_jIkH5g
 # Collage
+
 
 
