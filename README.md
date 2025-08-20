@@ -7,7 +7,9 @@ My main favorite thing to do is listen to music. I love music of all sorts. Righ
 
 # Playlist
 https://open.spotify.com/playlist/2XZMCI66qCLX6Sy2rfGMnd?si=Pt3co-yKR4-e3dV_jIkH5g
-# Collage
+# Collage 
+![7D9EC471-3692-44FC-81D7-3A59E97C6441](https://github.com/user-attachments/assets/2a04187d-a732-4186-bdb2-419f9e065598)
+
 
 
 
